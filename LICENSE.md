@@ -1,4 +1,4 @@
-# 
+# vip Panel for Adobe InDesign for macOS - AI-assisted design and vector export is the best Adobe InDesign for macOS panel, featuring AI-assisted design and vector export. Safe,
 
 
 
